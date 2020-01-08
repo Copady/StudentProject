@@ -4,9 +4,9 @@
 
 # TEAM
 
-* Kelesidis Evgnosia Alexandra
+* Kelesidis Evgnosia Alexandra  kelesidisevgnosia@gmail.com
 
-* Cotan Paul Adrian
+* Cotan Paul Adrian  paulcotan@yahoo.com
 
 # Coordinator
 
